@@ -11,7 +11,6 @@
 
 - ⚡ Fun fact **I love train trips—sometimes I randomly get off at a station just to explore the area with no plan. You never know what you’ll find, and that’s the best part.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
